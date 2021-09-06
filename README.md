@@ -1,2 +1,2 @@
 # emowawa
-花阿姨的恶魔事
+This is a book of gracetoy@protonmail.com
